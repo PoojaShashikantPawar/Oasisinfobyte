@@ -1,2 +1,1 @@
-# Oasisinfobyte
-simran
+bcsdahjndsbcghuxjkmx
